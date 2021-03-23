@@ -29,3 +29,6 @@ Emmanuel grew up in Brooklyn for all of his life. He's always played videogames,
 * God of War
 * Legend of Zelda Breath of The Wild
 * Ghost of Tsushima
+*
+
+reviewed by Joseph 
